@@ -71,7 +71,7 @@ For that fresh and beautiful salad you need
 - egg 2;
 - olive oil;
 - peper;
-- salt or soya sous
+- salt or soya sous;
 
 So you need to boil eggs for about 8 minute, just to make sure they have hard condition.
 Then you need to cut everything in 1/4
