@@ -28,7 +28,16 @@
 
 
 ## Shadi Fakhri
+ghorme sabzi:
+.fry chupped onion 
+.fry special vegtible and add it to fried onion
+.fry chupped meet and add to them
+.mix them while you are fring those
+.add some spices
+.add water 
 
+
+after about 1 hour your food is  ready
 
 ## Adrian Ilovan
 
