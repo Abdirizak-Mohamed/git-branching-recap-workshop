@@ -192,8 +192,9 @@ Serve with a drizzle of strawberry compote and sliced fresh strawberries.
 ## Anu Thapaliya-
 Momo-Receipe-:
 marinate chicken kima with corrindor leaves, momo spices,salt.
-make a dough and make amomo wrapper.
+make a dough and make a momo wrapper.
 put marinate kima into momo wrapper.
+make like adumpling shape n size.
 stem it in a steamer.
 ready to eat.
 
