@@ -100,6 +100,7 @@
 
 
 ## Navid Hejazi
+Omelette wedges: 
 STEP 1
 Finely chop the spring onions and set aside. Thickly slice the potatoes (there is no need to peel them first), then boil in a pan of lightly salted water for 10 mins until just tender. Drain.
 
