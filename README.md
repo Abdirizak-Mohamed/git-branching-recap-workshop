@@ -35,7 +35,7 @@ STEP 7
 Tear up the leaves from the bunch of basil and set aside. Cook 1 thinly sliced medium onion in the pan for 5 minutes. Add 3 crushed garlic cloves and fry for a further minute. Stir in 1 tbsp red wine vinegar and 1 tsp sugar, then tip in the tomatoes and half the basil.
 
 STEP 8
-Return the vegetables to the pan with some salt and pepper and cook for 5 mins. Serve with basil.
+Return the vegetables to the pan with some salt and pepper and cook for 5 mins. Serve with basil
 Once you've added your recipe to the file 
 
 1. Create a branch using /firstName-lastName/ i.e. abdi-mohamed
