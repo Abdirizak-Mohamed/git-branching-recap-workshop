@@ -70,7 +70,12 @@
 
 
 ## Jonathan Z
-
+DUMPLINGS
+1. mix together pork and chinese cabbage
+2. put mixture into wrappers (I always buy from store)
+3. pinch together wrappers with filling
+4. boil dumplings until they float
+5. eat with soy sauce and/or vinegar
 
 ## Anna
 
