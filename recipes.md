@@ -13,6 +13,14 @@
 
 
 ## Mahendra Balal
+Chicken salad - rachael ray recipe
+Main Ingredients:
+1 chicken breast 1 carrot coarsley cut 1 cup of peas 2 celery stalks, chopped 1/2 onion chopped 1/2 cup of mayonaise 1/2 cup of milk 2 tablespoons of lime juice 1 teaspoon of mustard 1 head of lettuce salt and pepper
+
+
+Cooking Preparation of the Recipe:
+Wash the chicken well and boil it with salt. Cut it into coarse chunks. Boil the carrots and peas. When the chicken, peas and carrots have cooled a little, mix them with the celery, onion mayonaise, milk, lime and the mustard in a salad bowl. Serve the salad cold over lettuce.
+
 
 
 ## Elena Barker
