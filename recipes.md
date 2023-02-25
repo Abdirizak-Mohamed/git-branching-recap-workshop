@@ -107,7 +107,21 @@ Cover with plastic wrap and refrigerate for at least 8 hours to overnight. Trans
 
 
 ## Saqib Javed
+my favourite recipe is how tp make pancakes.
+A quick and easy recipe to make pancakes!
 
+175g flour
+3 eggs
+450ml mi lk
+Sunflower oil
+
+Method:
+
+Add the flour, eggs, and milk to a bowl
+Whisk the mixture and set it aside for half an hour
+Heat a pan and add some sunflower oil
+Add some of the mix to the pan and cook for a few minutes
+Flip and cook the other side until done, then serve.
 
 ## Saim Korkmaz
 
