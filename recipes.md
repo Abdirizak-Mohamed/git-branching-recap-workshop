@@ -123,7 +123,7 @@
 ## Pouya Nasraei
 
 
-## Saliha Popal. now I learnt how to create a branch and make changes.
+## Saliha Popal. now I learnt how to create a branch and make changes. I found it a bit challenging with git.
 
 
 ## Rihanna Poursoltani
