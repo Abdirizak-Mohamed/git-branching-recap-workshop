@@ -113,6 +113,8 @@
 
 ## Maksim Lukianenko
 
+Borscht is
+Borscht soup is a traditional Ukrainian soup made with beef, cabbage, beets, and other vegetables. It's known for the beautiful ruby-red color that comes from adding beets. The main ingredients that always go into borscht recipe is cabbage, beets, and beef. You can variate some other veggies that you put into it.
 
 ## Iryna Lypnyk
 
