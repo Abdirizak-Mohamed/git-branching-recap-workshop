@@ -91,6 +91,16 @@
 
 
 ## Afsoon Davari
+Iranian Omlet
+tomato   1
+egg      3
+white onion   1
+oil
+salt&pepper
+
+chop the onion fine then add to a pan and fry with oil for 2-3 minutes.
+then add copped tomato to the onion and give a good time to cook a bit . (4-5 minutes would be enough) . The next thing you need to do add eggs to your mix and stir it well . adding salt and pepper would be your last step. 
+enjoy your Omlet.
 
 
 ## Kristina Dudnyk
