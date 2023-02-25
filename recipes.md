@@ -113,6 +113,30 @@ Cover with plastic wrap and refrigerate for at least 8 hours to overnight. Trans
 
 
 ## J Lama
+Things you will need:
+
+Soy Chunks (1.5 lbs)
+Onion (Medium sized, finely sliced)
+Serrano Peppers (Green Chilies, 2-3)
+Ginger-Garlic Paste (1 table spoon)
+Ginger (2 table spoons, thinly sliced)
+Garlic (2 table spoons, thinly sliced)
+Salt (according to the taste)
+Turmeric (1 tea spoon)
+Red Chili Powder (1/2 table spoon)
+Schezwan Pepper (1 and 1/2 table spoons)
+Cumin-Coriander Powder (1 table spoon)
+Tomatoes (3 medium sized, boiled and peeled)
+Fenugreek seeds (1 tea spoon)
+Oil (2 table spoons)
+Lime juice (3 table spoons)
+Directions:
+Soak soy chunks on a cold water for 15 minutes.
+Heat pan and add a tea spoon of oil and fry soya chunks until red and crispy.
+On a large bowl, place soya chunks, add all of the above mentioned ingredients except fenugreek seeds, lime juice and remaining oil.
+Heat remaining oil and add fenugreek. Fry until brownish black and pour it over the mixture.
+Add lime juice and give everything a good mix.
+Done! Simple as that 
 
 
 ## Damilola odumosu
