@@ -198,3 +198,20 @@ Cover with plastic wrap and refrigerate for at least 8 hours to overnight. Trans
 
 
 ## Baki Tuncer
+
+## Anna Hrychaniuk
+PANCAKES or CREPES or MLYNTSI
+
+You will need
+4 eggs
+1 glass of milk
+½ teaspoon salt
+1 (or 2) tablespoon sugar
+10 ml vegetable oil
+50 ml sparkling water (optional)
+What to do with all that
+Combine the ingredients Whisk to combine.
+With an electric mixer, beat until well combined.
+Heat a nonstick skillet over medium-high and spray with nonstick cooking spray.
+Ladle the batter into the pan just to cover the bottom. Cook until the surface begins to bubble, then flip over to cook the other side.
+Serve hot with desired toppings.
