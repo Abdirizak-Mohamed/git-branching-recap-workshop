@@ -182,7 +182,7 @@ Add some of the mix to the pan and cook for a few minutes
 Flip and cook the other side until done, then serve.
 
 ## Saim Korkmaz
-
+My favorite recipe is pasta. Boil the water (with salt and/or olive oil) in a large pan. Once boiling add the pasta and cook for 8-12 mins, depending on the shape – see above. Drain and leave to steam dry for a few mins, just until the surface of the pasta looks matte.
 
 ## J Lama
 Things you will need:
