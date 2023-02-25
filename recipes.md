@@ -364,7 +364,19 @@ When ready, divide the topping between the bases, spreading it to the edges of t
 
 
 ## Kristina Dudnyk
+Redish Salad
+For that fresh and beautiful salad you need
 
+- radish 150g;
+- egg 2;
+- olive oil;
+- peper;
+- salt or soya sous;
+
+So you need to boil eggs for about 8 minute, just to make sure they have hard condition.
+Then you need to cut everything in 1/4
+That's it :D
+Add other ingredients on your taste
 
 ## Jarrod Folino
 
