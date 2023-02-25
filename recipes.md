@@ -123,7 +123,7 @@
 ## Pouya Nasraei
 
 
-## Saliha Popal
+## Saliha Popal. now I learnt how to create a branch and make changes.
 
 
 ## Rihanna Poursoltani
@@ -131,6 +131,7 @@
 
 ## Danny Elena Romero
 
+6
 
 ## Cal Tanner
 
