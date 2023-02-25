@@ -82,7 +82,7 @@ For the dumplings
 Method
 Put the onion, olive oil and butter In an ovenproof, wide casserole dish. Fry over a low heat until the onion is soft and beginning to turn golden brown. Stir in the flour and mustard powder and cook, stirring, for 2 minutes. Gradually stir in the apple juice, followed by the stock, then the wholegrain mustard and bay leaves. Bring the sauce to a simmer.
 
-Add the celeriac and leek and continue simmering for 15 minutes, or until the vegetables are almost tender. Take off the heat and remove the bay leaves. Stir in the spinach, followed by the beans and tarragon. Season to taste. Preheat the oven to 200C/180C Fan/Gas 6..
+Add the celeriac and leek and continue simmering for 15 minutes, or until the vegetables are almost tender. Take off the heat and remove the bay leaves. Stir in the spinach, followed by the beans and tarragon. Season to taste. Preheat the oven to 200C/180C Fan/Gas 6.
 
 For the dumplings, mix the flour and baking powder in a mixing bowl. Rub in the diced butter until you can only feel small lumps, then stir in the tarragon and salt. Mix the yogurt with 2 tablespoons of cold water, then drizzle over the flour and mix quickly to form a sticky dough. Flour your hands, then quickly roll into 12 balls.
 
