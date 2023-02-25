@@ -13,10 +13,80 @@
 
 
 ## Mahendra Balal
+Chicken salad - rachael ray recipe
+Main Ingredients:
+1 chicken breast 1 carrot coarsley cut 1 cup of peas 2 celery stalks, chopped 1/2 onion chopped 1/2 cup of mayonaise 1/2 cup of milk 2 tablespoons of lime juice 1 teaspoon of mustard 1 head of lettuce salt and pepper
+
+
+Cooking Preparation of the Recipe:
+Wash the chicken well and boil it with salt. Cut it into coarse chunks. Boil the carrots and peas. When the chicken, peas and carrots have cooled a little, mix them with the celery, onion mayonaise, milk, lime and the mustard in a salad bowl. Serve the salad cold over lettuce.
+
 
 
 ## Elena Barker
+Honey cake 
 
+Ingredients
+Burnt Honey:
+
+¾ cup wildflower honey
+
+3 tablespoons cold water
+
+Cake Layers:
+
+1 cup white sugar
+
+14 tablespoons unsalted butter, cut into slices
+
+¾ cup wildflower honey
+
+2 ½ teaspoons baking soda
+
+1 teaspoon ground cinnamon
+
+¾ teaspoon fine salt
+
+6 large cold eggs
+
+3 ¾ cups all-purpose flour
+
+Frosting:
+
+4 cups cold heavy whipping cream
+
+¾ cup sour cream
+
+Local Offers
+00000 Change
+Oops! We cannot find any ingredients on sale near you. Do we have the correct zip code?
+ADVERTISEMENT
+Directions
+Pour 3/4 cup wildflower honey into a deep saucepan over medium heat. Boil until a shade darker and caramel-like in aroma, about 10 minutes. Turn off heat and whisk in cold water.
+
+Preheat the oven to 375 degrees F (190 degrees C). Line a baking sheet with a silicone baking mat. Place a mixing bowl and whisk in the refrigerator.
+
+Place a large metal bowl over the lowest heat setting on the stovetop. Add sugar, butter, 3/4 cup wildflower honey, and 1/4 cup burnt honey. Let sit until butter melts, 5 to 7 minutes. Reserve remaining burnt honey for the frosting.
+
+Meanwhile, combine baking soda, cinnamon, and salt in a small bowl.
+
+Whisk butter mixture and let sit until very warm to the touch. Whisk in eggs. Keep mixture over low heat until it warms up again, then whisk in baking soda mixture. Remove from heat. Sift in flour in 2 or 3 additions, stirring well after each, until batter is easily spreadable.
+
+Transfer about 1/2 cup batter onto the prepared baking sheet. Spread into an 8- or 9-inch circle using an offset spatula. Shake and tap the pan to knock out any air bubbles.
+
+Bake in the preheated oven until lightly browned, 6 to 7 minutes. Remove liner from the pan and let cake layer continue cooling until firm enough to remove, 6 to 7 minutes. Invert cake onto a round of parchment paper.
+
+Repeat Steps 6 and 7 until you have 8 cake layers, letting each cool on an individual parchment round. Trim edges using a pizza wheel to ensure they are the same size; save scraps for crumb mixture.
+
+Spread any remaining batter onto the lined baking sheet. Bake in the preheated oven until edges are dry, about 10 minutes. Remove from the oven and cut into small pieces; toss with reserved cake scraps.
+
+Return scraps to the oven and bake until browned, 7 to 10 minutes more. Let cool completely, 15 to 20 minutes. Transfer to a resealable bag and beat into fairly fine crumbs using a rolling pin. Set aside.
+
+Remove the bowl and whisk from the refrigerator. Pour in heavy cream and whisk until soft peaks form. Add sour cream and remaining burnt honey; continue whisking until stiff peaks form.
+
+Place a cake layer on a parchment paper round on a pizza pan or serving plate. Spread a cup of frosting evenly on top, almost to the edge. Repeat with cake layers and frosting, pressing layers in smooth-side down. Place last cake layer smooth-side up. Frost top and sides of cake. Cover with crumbs; clean any excess crumbs around base.
+
+Cover with plastic wrap and refrigerate for at least 8 hours to overnight. Transfer to a cake stand using 2 spatulas. Cut and serve.
 
 ## Rebecca Champion
 
@@ -47,8 +117,53 @@
 
 ## Damilola odumosu
 
+Recipe for jollof rice
+
+Ingredients
+
+1/3 cup oil (vegetable/canola/coconut, not olive oil)
+6 medium-sized fresh plum/Roma tomatoes, chopped, OR a 400-gram tin of tomatoes
+6 fresh, red poblano peppers (or 4 large red bell peppers), seeds discarded
+3 medium-sized red onions (1 sliced thinly, 2 roughly chopped), divided
+1/2 to 1 hot pepper, or to taste (yellow Scotch bonnets are my favourite)
+3 tablespoons tomato paste
+2 teaspoons (Caribbean/Jamaican-style) curry powder
+1 teaspoon dried thyme
+2 dried bay leaves
+5 to 6 cups stock (vegetable, chicken, or beef) or water, divided
+2 teaspoons unsalted butter (optional), divided
+4 cups uncooked converted long-grain rice or golden sella basmati, rinsed
+Salt, to taste
+Black and white pepper, to taste
+Extra: sliced onions, tomatoes
+
+Directions
+
+In a blender, combine tomatoes, red poblano (or bell) peppers, chopped onions, and Scotch bonnets with 2 cups of stock, blend till smooth, about a minute or two. You should have roughly 6 cups of blended mix. Pour into a large pot/ pan and bring to the boil then turn down and let simmer, partly covered for 10 - 12 minutes
+
+In a large pan, heat oil and add the sliced onions. Season with a pinch of salt, stir-fry for 2 to 3 minutes, then add the bay leaves, curry powder and dried thyme and a pinch of black pepper for 3 - 4 minutes on medium heat. Then add the tomato paste - stir for another 2 minutes. Add the reduced tomato-pepper-Scotch bonnet mixture, stir, and set on medium heat for 10 to 12 minutes till reduced by half, with the lid partly on. This is the stew that will define the pot.
+
+Add 4 cups of the stock to the cooked tomato sauce and bring it to boil for 1 - 2 minutes.
+Add the rinsed rice and butter, stir, cover with a double piece of foil/baking or parchment paper and put a lid on the pan—this will seal in the steam and lock in the flavor. Turn down the heat and cook on the lowest possible heat for 30 minutes, stirring half way through.
+Stir rice—taste and adjust as required. If rice isn't soft enough/ needs additional cooking, add 1/4 to 1/2 cup of stock or water, stir through and continue to steam, on low till cooked through.
+
+If you like, add sliced onions, fresh tomatoes and the 2nd teaspoon of butter and stir through. Let rest, covered for 5 to 6 minutes.
+To make Party Rice, you'll need one more step. Now Party Rice is essentially Smoky Jollof Rice, traditionally cooked over an open fire. However, you can achieve the same results on the stove top. Here's how: Once the rice is cooked, turn up the heat with the lid on and leave to "burn" for 3 to 5 minutes. You'll hear the rice crackle and snap and it will smell toasted. Turn off the heat and leave with the lid on to "rest" till ready to serve. The longer the lid stays on, the smokier. Let the party begin!
+
+
 
 ## Bedi Omuri
+Vanilla panna cotta
+Method
+STEP 1
+Add the sheets of gelatine to a bowl of cold water and soak for 5 mins.
+
+STEP 2
+Pour the milk and cream into a saucepan with the sugar and vanilla seeds (to scrape the seeds out of the pod, use the back of a knife). Stir to combine and bring to a simmer, then remove from the heat. Take the gelatine out of the cold water and squeeze out the excess, then add to the milk mixture. Stir until completely dissolved. Tip into four ramekins and place in the fridge to set for at least a couple of hours.
+
+STEP 3
+To serve, turn each ramekin upside-down onto a serving plate. If the panna cotta won't drop out, carefully dip the ramekin in a bowl of warm water to loosen it.
+Serve with a drizzle of strawberry compote and sliced fresh strawberries.
 
 
 ## Stella Del Mar Rodriguez Fernandez
@@ -60,7 +175,13 @@
 ## Jan Softa
 
 
-## Anu Thapaliya
+## Anu Thapaliya-
+Momo-Receipe-:
+marinate chicken kima with corrindor leaves, momo spices,salt.
+make a dough and make amomo wrapper.
+put marinate kima into momo wrapper.
+stem it in a steamer.
+ready to eat.
 
 
 ## Karley Webster
@@ -85,6 +206,40 @@
 
 
 ## Shahid Amin
+
+Lahmacun
+
+Ingredients
+For the dough
+
+200g strong white bread flour, plus extra to dust
+½ tsp salt
+7g fast-action dried yeast
+¼ tsp caster sugar
+40ml sunflower oil, plus extra for oiling
+1 medium free-range egg
+75ml lukewarm water
+For the topping
+
+½ onion, finely chopped
+1 green pepper, finely chopped
+½ heaped tsp ground cinnamon
+¼ tsp ground allspice
+Scant tsp ground cumin
+1 tsp aleppo chilli flakes (or ½ tsp regular chilli flakes)
+2 heaped tbsp tomato purée (or domates salçasi)
+Small bunch fresh flatleaf parsley, finely chopped, plus extra to serve
+200g 20% fat British beef mince
+Dried sumac for sprinkling
+35g toasted pine nuts
+1 tbsp pomegranate molasses (optional)
+Sliced cucumber, red onion and cherry tomatoes dressed with red wine vinegar and olive oil to serve
+Method
+For the dough, mix the flour, salt, yeast and sugar in a medium bowl. Mix the sunflower oil, egg and water in a jug, then stir into the dry ingredients to form a sticky dough. Tip out onto a lightly floured surface and knead for a few minutes until the dough becomes smooth and elastic. Put in a lightly oiled bowl, cover with a tea towel and leave to rise for 1 hour.
+Meanwhile, put the onion, green pepper, ground spices, chilli, tomato purée and parsley in a food processor and whizz until the veg is finely chopped. Add the meat and plenty of salt and stir to combine (don’t whizz). Set aside.
+Heat the oven to 200°C/180°C fan/gas 6. Once the dough has risen, punch it down, knead for another minute or so, then divide in half. Roll each piece out to 4mm thick on a well floured surface, keeping the remaining dough covered with a tea towel. Once both are rolled, leave to rise again for 15 minutes, covered with clean tea towels.
+When ready, divide the topping between the bases, spreading it to the edges of the dough. Transfer to baking sheets, then bake for 10-15 minutes until the base is blistering and the topping is cooked. Remove from the oven, sprinkle with the sumac and pine nuts, then drizzle over the pomegranate molasses, if using. Serve hot, scattered with cucumber, red onion, tomatoes and extra parsley.
+
 
 
 ## Onur Atas
@@ -131,12 +286,15 @@ When the omelette seems set on the base, but is still a little eggy on top, put 
 
 ## Maksim Lukianenko
 
+Borscht is
+Borscht soup is a traditional Ukrainian soup made with beef, cabbage, beets, and other vegetables. It's known for the beautiful ruby-red color that comes from adding beets. The main ingredients that always go into borscht recipe is cabbage, beets, and beef. You can variate some other veggies that you put into it.
 
 ## Iryna Lypnyk
 
 
 ## Beko Meigag
-
+fish is my favourite food.
+I didn't know how I cooking 
 
 ## Pouya Nasraei
 
@@ -155,3 +313,21 @@ When the omelette seems set on the base, but is still a little eggy on top, put 
 
 ## Baki Tuncer
 
+## Anna Hrychaniuk
+PANCAKES or CREPES or MLYNTSI
+
+You will need
+4 eggs
+1 glass of milk
+½ teaspoon salt
+1 (or 2) tablespoon sugar
+10 ml vegetable oil
+50 ml sparkling water (optional)
+What to do with all that
+Combine the ingredients Whisk to combine.
+With an electric mixer, beat until well combined.
+Heat a nonstick skillet over medium-high and spray with nonstick cooking spray.
+Ladle the batter into the pan just to cover the bottom. Cook until the surface begins to bubble, then flip over to cook the other side.
+Serve hot with desired toppings.
+
+## navid-hejazi
