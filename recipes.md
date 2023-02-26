@@ -156,7 +156,16 @@ Cook the chicken for 10 minutes or until the chicken is cooked through in the mi
 Serve with flatbreads, pittas, lettuce, tzatziki, onions and pomegranate seeds – or whatever you like!
 
 ## Shadi Fakhri
+ghorme sabzi:
+.fry chupped onion 
+.fry special vegtible and add it to fried onion
+.fry chupped meet and add to them
+.mix them while you are fring those
+.add some spices
+.add water 
 
+
+after about 1 hour your food is  ready
 
 ## Adrian Ilovan
 Ingredients:
